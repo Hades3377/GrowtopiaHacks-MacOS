@@ -16,8 +16,8 @@ We look forward to all help we can get good and working trainers
 
 
 
-Discord for pre purchase or discussion
+Discord for discussion
 
-(will be free when unlocked)
+
 
 Discord:https://discord.gg/5TpCnSC
