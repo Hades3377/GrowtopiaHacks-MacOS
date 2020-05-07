@@ -10,6 +10,7 @@ INFO:
 
 Trainers run on: BitSlicer.
 BitSlicer authenticated link:https://www.macupdate.com/app/mac/34765/bit-slicer
+Other files may harm your computer, make sure the trainer file is a .slice
 
 WE DON'T CHARGE UNLESS YOUR BUYING IT FROM THE PRODUCER DIRECTLY
 
